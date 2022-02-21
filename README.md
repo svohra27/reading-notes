@@ -1,4 +1,4 @@
-# My learning Journal
+# My Learning Journal
 
 ## Growth Mindset 
 A growth mindset means that I do not have a learning ceiling unless I create one for myself. **The sky is the limit!**
